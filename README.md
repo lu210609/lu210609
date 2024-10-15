@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lu210609
+- 👀 I’m interested in study
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
+- 😄 Pronouns: ela/dela
+- ⚡ Fun fact:
