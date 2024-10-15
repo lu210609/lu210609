@@ -3,4 +3,5 @@
 - 💞️ I’m looking to collaborate on my teacher
 - 📫 @lu_smp
 - 😄 Pronouns: ela/dela
-- ⚡ Fun fact:
+- ⚡ Fun fact:I'm smart
+
